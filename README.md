@@ -1,1 +1,1 @@
-# ushtrime
+# ushtrime per projektin qe kemi me e ba
